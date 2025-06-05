@@ -11,7 +11,7 @@
 
 ## 🚀 About Me
 
-Over 11 years of practical and professional experience in the arena of Human Resources in different local and multinational business domains like Legal AI, Airlines, ISP, Digital Marketing & Software Development, Smartcard and RMG.
+Over 11 years of practical and professional experience in the arena of Human Resources in different local and multinational business domains like Legal AI, Airlines, ISP, Digital Marketing & Software Development, Smartcard and RMG. I have successfully helped startups, and global enterprises optimize their HR processes, saving time and resources while ensuring compliance and satisfaction.
 
 ---
 
